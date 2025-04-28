@@ -1,1 +1,1 @@
-Bonjour ceci est un nouveau message
+Voici un message de la terre
